@@ -151,24 +151,24 @@ Download PavoTV today and enter a world of free movies and web series!
 
 [Bad Newz full movie](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz episode]
+[Bad Newz episode](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz movie release date]
+[Bad Newz movie release date](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz full episodes]
+[Bad Newz full episodes](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz scene]
+[Bad Newz scene](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz movie release date]
+[Bad Newz movie release date](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz full movie watch online PavoTV ]
+[Bad Newz full movie watch online PavoTV ](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz full movie Netflix]
+[Bad Newz full movie Netflix](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz full movie English free 2024]
+[Bad Newz full movie English free 2024](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz full movie English free 2020 download PavoTV mp4moviez]
+[Bad Newz full movie English free 2020 download PavoTV mp4moviez](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz full movie in Hindi]
+[Bad Newz full movie in Hindi](https://www.pavotv.com/movies/7697247191817216/bad-newz)
 
-[Bad Newz movie full movie PavoTV ]
+[Bad Newz movie full movie PavoTV ](https://www.pavotv.com/movies/7697247191817216/bad-newz)
